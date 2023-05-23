@@ -1,1 +1,0 @@
-# enyata-academy-2023
